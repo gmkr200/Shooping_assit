@@ -1,0 +1,1 @@
+chartgpt url for conversatioins about this project : https://chatgpt.com/c/6886dd9e-beac-832b-ad22-878ee3906353
